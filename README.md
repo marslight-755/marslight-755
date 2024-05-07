@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marslight-755
-- 👀 I’m interested in making friends and helping each other out
+- 👀 I’m interested in making allies
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :hemanihussainali67@gmail.com
